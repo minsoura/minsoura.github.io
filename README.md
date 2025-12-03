@@ -1,1 +1,0 @@
-# minsoura.github.io
